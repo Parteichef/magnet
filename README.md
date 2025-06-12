@@ -6,7 +6,7 @@ Deswegen bin ich Nazi geworden, rede und schreibe viel Scheisse, habe ein innige
 
 Ich habe eine Bitte:
 # WERDE NICHT SO WIE ICH!
-Es ist ein Scheissleben. Ich hasse mich selbst und darum hasse ich alle, die anders sind als ich. Also nett, meine ich.
+Es ist ein Scheissleben. Ich hasse mich selbst und darum hasse ich alle, die anders sind als ich.
 
 Wusstest Du? Es gibt zufällig einen Typen, der heißt so ähnlich wie ich, nämlich [Stefan Magnet](https://www.stopptdierechten.at/2025/03/10/magnet-auf1-und-die-fake-news/).
 Über den kann man Sachen erfahren, holla die Waldfee.
