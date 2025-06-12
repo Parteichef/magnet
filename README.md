@@ -2,8 +2,13 @@
 ## Ich bin ein verfickter Nazi-Loser.
 ## Meine Mama hat mich nicht geliebt und mein Papa hat mich verdroschen.
 
-Deswegen bin ich Nazi geworden, rede und schreibe viel Scheisse, habe ein inniges Verhältnis mit Gottfried Küssel und betreibe den Neonazi-Schwurbelsender AUF1.
+Deswegen bin ich Nazi geworden, rede und schreibe viel Scheisse, habe ein inniges Verhältnis mit Gottfried Küssel und betreibe einen [Neonazi-Schwurbelsender wie den da](https://de.wikipedia.org/wiki/AUF1).
 
 Ich habe eine Bitte:
 # WERDE NICHT SO WIE ICH!
-Es ist ein Scheissleben.
+Es ist ein Scheissleben. Ich hasse mich selbst und darum hasse ich alle, die anders sind als ich. Also nett, meine ich.
+
+Wusstest Du? Es gibt zufällig einen Typen, der heißt so ähnlich wie ich, nämlich [Stefan Magnet](https://www.stopptdierechten.at/2025/03/10/magnet-auf1-und-die-fake-news/).
+Über den kann man Sachen erfahren, holla die Waldfee.
+
+Aber ich bin der echte Stefan Mag.net. Wollte ich nur gesagt haben.
